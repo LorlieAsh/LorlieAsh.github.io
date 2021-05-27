@@ -1,5 +1,3 @@
-## NyahBlk.com :: A muppet, mind went blinded
-
 =This site is under construction. Come back sooner or later.=
 
 袁浩乐发病实录
