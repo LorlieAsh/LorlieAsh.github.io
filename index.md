@@ -8,11 +8,11 @@
 
 Link
 
-[Steam](https://steamcommunity.com/id/xeRathLoRash/)<br />
-[网抑云](https://music.163.com/#/user/home?id=97289139)<br />
-[AlphaFun](https://www.acfun.cn/u/14150210)<br />
-[BarvoBeely](https://space.bilibili.com/21234201/)<br />
-[寨版Discord](https://kaihei.co/wcrOAz)<br />
+<center>[Steam](https://steamcommunity.com/id/xeRathLoRash/)</center><br />
+<center>[网抑云](https://music.163.com/#/user/home?id=97289139)</center><br />
+<center>[AlphaFun](https://www.acfun.cn/u/14150210)</center><br />
+<center>[BarvoBeely](https://space.bilibili.com/21234201/)</center><br />
+<center>[寨版Discord](https://kaihei.co/wcrOAz)</center><br />
 
 
 ## Welcome to GitHub Pages
