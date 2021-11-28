@@ -19,5 +19,5 @@
 
 *瞎几把写*
 
-[#0 糟蹋过的那些电子设备](/index.html)<br />
+[#0 糟蹋过的那些电子设备](/0_wasted_electroic_devices.html)<br />
 
