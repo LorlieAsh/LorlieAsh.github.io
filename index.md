@@ -17,3 +17,7 @@
 [阿B](https://space.bilibili.com/21234201/)<br />
 [常蹲开黑啦频道](https://kaihei.co/wcrOAz)<br />
 
+*瞎几把写*
+
+[#0 糟蹋过的那些电子设备](/index.html)<br />
+
