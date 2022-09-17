@@ -11,11 +11,11 @@
 
 *Link*
 
-[Sbeam](https://steamcommunity.com/id/xeRathLoRash/)<br />
-[网抑云](https://music.163.com/#/user/home?id=97289139)<br />
-[缺B乐](https://www.acfun.cn/u/14150210)<br />
-[阿B](https://space.bilibili.com/21234201/)<br />
-[常蹲开黑啦频道](https://kaihei.co/wcrOAz)<br />
+[Steam](https://steamcommunity.com/id/xeRathLoRash/)<br />
+[网易云歌单](https://music.163.com/#/user/home?id=97289139)<br />
+[A站](https://www.acfun.cn/u/14150210)<br />
+[B站](https://space.bilibili.com/21234201/)<br />
+[开黑啦](https://kaihei.co/wcrOAz)<br />
 
 *瞎几把写*
 
