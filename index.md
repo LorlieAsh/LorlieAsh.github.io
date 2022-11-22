@@ -3,21 +3,17 @@
 
 ![SteamSmiley](https://cdn.akamai.steamstatic.com/steamcommunity/public/images/avatars/30/30c9996d5f1d7f3e1cddc5286537b742ddb0b559_full.jpg)
 
-*袁浩乐发病实录*
-
-[全程回放-Acfun1080p60](https://www.acfun.cn/v/ac24563298)<br />
-[全程回放-pilipili全损](https://www.bilibili.com/video/BV1DK4y1n7d2)<br />
-[狗群友讨论纪录及当事人事后反应(感谢某bot群友分享聊天记录)](https://Innotori.github.io/袁浩乐发病讨论实录.txt)<br />
-
 *Link*
 
 [Steam](https://steamcommunity.com/id/xeRathLoRash/)<br />
 [网易云歌单](https://music.163.com/#/user/home?id=97289139)<br />
-[A站](https://www.acfun.cn/u/14150210)<br />
-[B站](https://space.bilibili.com/21234201/)<br />
-[开黑啦](https://kaihei.co/wcrOAz)<br />
+[AcFun](https://www.acfun.cn/u/14150210)<br />
+[Bilibili](https://space.bilibili.com/21234201/)<br />
+[语音：开黑啦](https://kaihei.co/wcrOAz)<br />
 
-*瞎几把写*
 
-[#0 糟蹋过的那些电子设备](/0_wasted_electroic_devices.html)<br />
+*群友记录：袁浩乐酒后发颠实录*
+[全程回放-Acfun1080p60](https://www.acfun.cn/v/ac24563298)<br />
+[全程回放-pilipili全损](https://www.bilibili.com/video/BV1DK4y1n7d2)<br />
+[狗群友讨论纪录及当事人事后反应(感谢某bot群友分享聊天记录)](https://Innotori.github.io/袁浩乐发病讨论实录.txt)<br />
 
