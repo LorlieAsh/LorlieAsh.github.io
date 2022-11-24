@@ -3,8 +3,7 @@
 
 ![SteamSmiley](https://cdn.akamai.steamstatic.com/steamcommunity/public/images/avatars/30/30c9996d5f1d7f3e1cddc5286537b742ddb0b559_full.jpg)
 
-*Link*
-
+*Link*<br />
 [Steam](https://steamcommunity.com/id/xeRathLoRash/)<br />
 [网易云歌单](https://music.163.com/#/user/home?id=97289139)<br />
 [AcFun](https://www.acfun.cn/u/14150210)<br />
@@ -12,7 +11,9 @@
 [语音：开黑啦](https://kaihei.co/wcrOAz)<br />
 
 
-*群友记录：袁浩乐酒后发颠实录*
+
+
+*群友黑历史：袁浩乐酒后发颠实录* <br />
 [全程回放-Acfun1080p60](https://www.acfun.cn/v/ac24563298)<br />
 [全程回放-pilipili全损](https://www.bilibili.com/video/BV1DK4y1n7d2)<br />
 [狗群友讨论纪录及当事人事后反应(感谢某bot群友分享聊天记录)](https://Innotori.github.io/袁浩乐发病讨论实录.txt)<br />
