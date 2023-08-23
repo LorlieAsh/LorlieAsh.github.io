@@ -13,7 +13,3 @@
 
 
 
-*群友黑历史：袁浩乐酒后发颠实录* <br />
-[全程回放-Acfun1080p60](https://www.acfun.cn/v/ac24563298)<br />
-[狗群友讨论纪录及当事人事后反应(感谢某bot群友分享聊天记录)](https://Innotori.github.io/袁浩乐发病讨论实录.txt)<br />
-
